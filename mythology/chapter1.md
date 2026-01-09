@@ -1,3 +1,5 @@
+# Chapter 1: Beginnings
+
 It all began on a dark and stormy night in a narrow alleyway on **Thetamisland**. Rain fell in sharp, slanted sheets, striking the concrete with a relentless hiss. Thunder growled overhead like something ancient and watchful, while the wind funneled through the alley, carrying scraps of paper, broken leaves, and whispers of a city that never truly slept.
 
 In the center of the alley, beneath a flickering streetlamp, a small **Thetegg** lay abandoned.
